@@ -1,0 +1,58 @@
+# ONE OK ROCK – ONE OK ROCK - Wasted Nights [Official Video from "EYE OF THE STORM" JAPAN TOUR]
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:18.11] Must be something in the water
+[00:21.32] Feel like I can take the world
+[00:25.84] Throw the weight up on my shoulders
+[00:28.84] Cause I won't even feel the burn
+[00:44.84] 
+[00:32.81] Don't be afraid to dive
+[00:35.95] Be afraid that you didn't try
+[00:39.88] These moments remind us why
+[00:43.63] We're here, we're so alive
+[00:56.63] 
+[00:47.06] Let's live like we're immortal
+[00:51.25] Live just for tonight
+[00:54.99] We'll think about tomorrow, yeah
+[00:58.32] When the sun comes up
+[01:02.76] Cause by this time tomorrow
+[01:06.77] We'll be talking about tonight
+[01:10.36] Keep doing what we want, we want, we want
+[01:13.97] No more wasted nights
+[01:24.47] 
+[01:19.60] ただ過ぎゆく時間に気を留める必要はない
+[01:27.57] 何かを失えば、また何か手にする
+[01:34.33] Don't be afraid to dive
+[01:38.00] 何もせずはもっと怖い
+[01:41.97] These moments remind us why
+[01:45.65] ここで生きる意味を
+[01:50.15] 
+[01:49.12] Let's live like we're immortal
+[01:52.90] Live just for tonight
+[01:56.85] We'll think about tomorrow, yeah
+[01:59.91] When the sun comes up
+[02:04.27] Cause by this time tomorrow
+[02:08.31] We'll be talking about tonight
+[02:11.86] Keep doing what we want, we want, we want
+[02:15.78] No more wasted nights
+[02:26.28] 
+[02:20.99] I don't wanna wait, I don't want to waste a night
+[02:28.07] I don't wanna wait, I don't want to waste a night
+[02:36.00] I don't wanna wait, I don't want to waste a night
+[02:43.63] I don't wanna wait, I don't want to waste a night
+[03:08.13] 
+[02:50.31] Let's live like we're immortal
+[02:54.51] Live just for tonight
+[02:58.08] We'll think about tomorrow, yeah
+[03:01.50] When the sun comes up
+[03:06.05] Cause by this time tomorrow
+[03:09.95] We'll be talking about tonight
+[03:13.25] Keep doing what we want, we want, we want
+[03:16.75] No more wasted nights
+[03:27.25] 
+[03:21.98] I don't wanna wait, I don't want to waste a night
+[03:29.92] I don't wanna wait
+[03:32.42] No more wasted nights
+```
